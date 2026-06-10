@@ -1,4 +1,4 @@
-# 
+# Inteligente dex arbitrage bot modelos para Mac OS | Atualizado dex arbitrage bot modelos para PC Windows. Com API de exchange descentralizada e arbitragem estatística — otimizado para máximo desempenho em cada plataforma.
 
 
 
